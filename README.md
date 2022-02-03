@@ -2,5 +2,5 @@ Salut tout le monde aujourd'hui j'ai décidé de vous faire un petit pack à sym
 
 -              𝐌𝐨𝐧 𝐝𝐢𝐬𝐜𝐨𝐫𝐝             -
 -----------------------------------------
- - Discord: https://discord.gg/aTKQEGF -
+ - Discord: https://discord.gg/chXY6ynQnR -
 -----------------------------------------
